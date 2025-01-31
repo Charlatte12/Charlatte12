@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Charlatte12
 - 👀 I’m interested in books,clothes,chips,sweatpants,and soccer
-- 🌱 I’m currently learning math,lit,comp science,history,timeline,sci-fi
+- 🌱 I’m currently learning math,lit,comp science,history,timeline,sci-fi ( in comp science - while loops, personality quizezs etc:)
 - 💞️ I’m looking to collaborate on books
 - 📫 How to reach me ...you don't, you wierdo stalker
 - 😄 Pronouns: ... it
